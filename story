@@ -1,3 +1,3 @@
 Story
 
-Once upon a time, there lived a monkey who resided upon a berry tree which was on the bank of a river.
+Once upon a time, there lived a monkey who resided upon a berry tree which was on the bank of a river. In the same forest, there lived a crocodile and his wife. One day, the crocodile came to the banks of the river and rested under the tree. The kind monkey offered him some fruits. The crocodile came back next day for more fruits, as he loved them. As days passed by, the crocodile and the monkey became good friends. The crocodile's wife was very happy with the daily fruits she got from the monkey.
